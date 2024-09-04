@@ -1,16 +1,27 @@
-## Hi there 👋
+# Hi there 👋 Welcome To Kiara's Profile <3
 
-<!--
-**kiaraastr/kiaraastr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### Halo! namaku Kiara Sutra Kurana biasa dipanggil kiara :) Aku sekarang adalah Mahasiswa S1 Geofisika di Universitas Gadjah Mada.
+ 
+ ## Let me tell you about me ^___^
 
-Here are some ideas to get you started:
+## **Kiara's Hobby :**
+- Nyanyi
+- Jalan Jalan
+- Tidur
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## **Kiara's Favorite**
+- Pink color!!!!!
+- Indomie
+- Teh kotak blackcurrant
+- NADIN AMIZAAAAHHH <3333
+
+## **Kiara's Funfact**
+- Bisa tebak lagu nadin dari intro doang
+- Chocolate haters ^____^ (respect me)
+
+## if you wanna know me better, Contact me at @kiaraastr on instagram.
+
+### Lot's love, Kiara. XOXO 
+#### See u <3
+
+
